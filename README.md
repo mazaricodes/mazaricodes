@@ -16,13 +16,13 @@
 ''''''''''''._/ThPXEgXZ8KUOH00NGqbH@8OYkGg3o^.''''''''''''  Creator: ............... AI & Tech content, Instagram
 ''''''''''''''/LdY@WMR0RDUUW0QR$Vq8NMNWHOVy!:.''''''''''''
 '''''''''''''.+omZ8DMR0N@@B0QQ0MbpgDMNDUYVTl'.''''''''''''  Contact
-'''''''''''''.-{JhYUHKK8P4q4UH8h7a748AYgmC[)''''''''''''''  Email: ...................... your.email@example.com
-''''''''''''''.+1#SV2qGYq71[[[*v)l}L5fn##1v_.'''''''''''''  Instagram: .................. @yourhandle
-'''''''''''''''.vtwF5qFq4PZGV5nLTf3JLj7L!v+'''''''''''''''  LinkedIn: .................... linkedin.com/in/yourhandle
+'''''''''''''.-{JhYUHKK8P4q4UH8h7a748AYgmC[)''''''''''''''  Email: ................... hassanmaxxed@gmail.com
+''''''''''''''.+1#SV2qGYq71[[[*v)l}L5fn##1v_.'''''''''''''  Instagram: .................. @thyhassanmazari
+'''''''''''''''.vtwF5qFq4PZGV5nLTf3JLj7L!v+'''''''''''''''  LinkedIn: .................. Hassan Mazari
 '''''''''''''''.'x[5hgEwLCy235ywJj1[nj?si"-.'''''''''''''.
-''''''''''''''''._\*L2EEpywfCCwTzatae[{)+'.'''''''''''''''  GitHub Stats
-'''''''''''''''''..^leC36FfLoet1tejLzI>''.''''''''''''''''  Repos: ....... —    Stars: —
-'''''''''''...''-_:\}*afqgPZYOOYXEVf]>\):---_':'_-'.'.....  Followers: .... —    Following: —
+''''''''''''''''._\*L2EEpywfCCwTzatae[{)+'.'''''''''''''''
+'''''''''''''''''..^leC36FfLoet1tejLzI>''.''''''''''''''''
+'''''''''''...''-_:\}*afqgPZYOOYXEVf]>\):---_':'_-'.'.....  
 '''''....''-',,;=<!]1e!!oJmXbkbPVF7l\)\),__:;;,,;;,::::,;^
 ...''_''',,;^^^=/tT1[eot{vvr*}}sx))|))\),_,^^;;,,;;;^==+""  Currently: .................. Open to AI collabs
 ':,;==;,,;,,;;^^>y5Lejuuz!c\++//"|)\\\\\+;^^;,,:'',,;;;^=^
