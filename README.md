@@ -7,7 +7,7 @@
 '''''''______--_____:''__'''''':;:''''''__''''':,^+;_'''''  Uptime: ................... 21 years, 4 months, 12 days
 '''''''_'_--------__'':,;;^^++^,;;;;;,,''_____'',;;_''''''  IDE: ...................... VS Code, Jupyter Notebook
 ''''-':,,'___---',^=^///)>>iII<)\)<>v)\)/:___''':;;_''''''
-''''-,,,,'_''_-_="))irc*ta1#Vq56ppp5FT*cv|:_'''::,''''''''  Languages.Programming: .... Python, C++, Java
+''''-,,,,'_''_-_='))irc*ta1#Vq56ppp5FT*cv|:_'''::,''''''''  Languages.Programming: .... Python, C++, Java
 ''''''''____'_-|rlIjmdXADH@8WR0Q0NB8GqT[r%|'''::'_''''''''  Languages.Human: .......... English, Urdu
 '''''''''-____:*L7znJ36VG8BNWWBAmTerv%s?*lv^:,:_''''''''''
 .'''''''''''''+?s{tjL1rxx!Fb$KOJlvv{u3yTt!?>::-'''''''''''  Experience: ................ Hypervail
@@ -21,7 +21,7 @@
 '''''''''''''''.vtwF5qFq4PZGV5nLTf3JLj7L!v+'''''''''''''''  LinkedIn: .................... linkedin.com/in/yourhandle
 '''''''''''''''.'x[5hgEwLCy235ywJj1[nj?si"-.'''''''''''''.
 ''''''''''''''''._\*L2EEpywfCCwTzatae[{)+'.'''''''''''''''  GitHub Stats
-'''''''''''''''''..^leC36FfLoet1tejLzI>"'.''''''''''''''''  Repos: ....... —    Stars: —
+'''''''''''''''''..^leC36FfLoet1tejLzI>''.''''''''''''''''  Repos: ....... —    Stars: —
 '''''''''''...''-_:\}*afqgPZYOOYXEVf]>\):---_':'_-'.'.....  Followers: .... —    Following: —
 '''''....''-',,;=<!]1e!!oJmXbkbPVF7l\)\),__:;;,,;;,::::,;^
 ...''_''',,;^^^=/tT1[eot{vvr*}}sx))|))\),_,^^;;,,;;;^==+""  Currently: .................. Open to AI collabs
